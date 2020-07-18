@@ -1,0 +1,2 @@
+# Barcika.github.io
+kezdő
